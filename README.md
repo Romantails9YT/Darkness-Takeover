@@ -1,4 +1,20 @@
 # Darkness-Takeover
+Link’s
+Twitter logoDarkness Takeover Twitter/X Account
+Darkness Takeover YT Channel
+Darkness Takeover Discord Server
+Download Links
+Streamer Build Game Jolt logo
+Source Code Google Drive icon (2026) (deleted)
+Streamer Build & Demo GameBanana logo
+Demo MediaFire logo
+D.O.H Build Google Drive icon (2026) (deleted)
+Bad Morning Build Google Drive icon (2026)
+Bad Morning Build MediaFire logo
+Aftermath {Crotheon Cut) MediaFire logo
+Mayor West Old FLA Files Google Drive icon (2026) (gone/deleted)
+v1 build (maybe fake or real idk) (made due to MiniSymba losing his old account. again this page may be fake so it maybe a imposter account)
+v1 gamejolt page (made due to MiniSymba losing his old account.)
 Credits
 Owner(s)
 PizzaPogg Pizzapogg icon
@@ -149,8 +165,9 @@ Misc
 Editor(s)
 Haise
 Placid Pigeon
+
 Dialogue
-A Family Guy
+A Family Guy:
 [SCENE: The screen is completely pitch black. The family is heard driving on the outskirts of Quahog.]
 
 Peter: Who the %@#$ is this jerk?
@@ -200,7 +217,7 @@ Meg: Oh my god-
 [The family is shown corrupted on the side of the road. Chris and Meg are seen horribly mangled and mutilated, while Lois, still retaining some form of consciousness, desperately reaches out to them. The three of them slowly melt into darkness before oozing into the body of Peter, who teleports to the Griffins’ house laughing.]
 
 [Cut to black.]
-Dialouge : Rooten Family
+Dialouge : Rooten Family:
 Brian Oh my god...
 Stewie We gotta get outta here!
 Brian (Screaming)
